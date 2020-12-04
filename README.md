@@ -1,0 +1,2 @@
+# Shohjahon
+Shunchaki zòr
